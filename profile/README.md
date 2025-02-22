@@ -1,4 +1,4 @@
-## El Hero APK Baixar a Última Versão (Desbloquear) completa para Android 2025
+# El Hero APK Baixar a Última Versão (Desbloquear) completa para Android 2025
 EL HERO APK é um jogo mobile que combina aventura, ação e estratégia em um universo repleto de desafios e inimigos poderosos. Nele, você assume o papel de um herói destinado a enfrentar criaturas místicas, explorar cenários incríveis e aprimorar suas habilidades para se tornar uma lenda.
 ![68747470733a2f2f6d656469612e74656e6f722e636f6d2f7157574b2d4f38334a355941414141692f636c69636b2d686572652e676966](https://github.com/user-attachments/assets/670e5ad1-fbde-4cab-b4cb-42764b781b03)
 
